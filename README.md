@@ -1,2 +1,0 @@
-# Guedes-Store-
-Guedes Store 
